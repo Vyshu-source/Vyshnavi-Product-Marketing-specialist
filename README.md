@@ -1,4 +1,4 @@
-# Vyshnavi-Product-Markrting-specialist
+# Vyshnavi-Product-Marketing-specialist
 Welcome to My GitHub Portfolio
 
 👋 About Me
